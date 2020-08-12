@@ -1,1 +1,1 @@
-bernard is my teammate
+bernard and Donald are my teammates
